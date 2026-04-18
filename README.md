@@ -1,7 +1,7 @@
 ## Hi, I'm Abhishek R S ✨
 
 
-🔌 Computer Science and Electronicsstudent at Marian Engineering College, Trivandrum<br/>
+🔌 Computer Science and Electronics student at Marian Engineering College, Trivandrum<br/>
 🛠️ I try creating, modifying, or developing things<br/>
 🎯 Sometimes I succeed, sometimes I don't-but I always learn<br/>
 
